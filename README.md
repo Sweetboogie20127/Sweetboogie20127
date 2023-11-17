@@ -2,7 +2,7 @@
 - 👀 I’m interested in  Idk
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on Idk lol
-- 📫 How to reach me  My Number 803 8006169 or Email me at Raelynnbaughman@gmail.com
+- 📫 How to reach me  My Number 803-800-6169 or Email me at Raelynnbaughman@gmail.com
 
 <!---
 Sweetboogie20127/Sweetboogie20127 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
